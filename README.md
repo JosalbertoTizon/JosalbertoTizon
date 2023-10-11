@@ -2,7 +2,7 @@
 
 - Aeronautics Institute of Technology (ITA) T27
 - Computational Engineering
-- Developing Games for the fun of it
+- Loading...
 
 
 <!---
