@@ -1,7 +1,7 @@
 ![ita_asas](https://github.com/JosalbertoTizon/JosalbertoTizon/assets/129426842/9d623ac2-17bc-4bf9-8765-02e14a430c17)
 
 - Aeronautics Institute of Technology (ITA) T27
-- Computational Engineering
+- Engineering freshman
 - Loading...
 
 
