@@ -1,4 +1,4 @@
-![ita_asas](https://github.com/JosalbertoTizon/JosalbertoTizon/assets/129426842/9d623ac2-17bc-4bf9-8765-02e14a430c17)
+![ita](https://github.com/JosalbertoTizon/JosalbertoTizon/assets/129426842/45ca038e-aa63-4338-977b-f8ac3c2c5a44)
 
 - Aeronautics Institute of Technology (ITA) T27
 - Engineering student
